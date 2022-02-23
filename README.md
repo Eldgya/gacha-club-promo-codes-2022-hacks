@@ -1,2 +1,5 @@
-# gacha-club-promo-codes-2022-hacks
-Gacha Club promo codes list 2022 hacks free outfit unlock
+# Gacha Club promo codes list 2022 hacks free outfit unlock
+
+Gacha Club promo codes list 2022 hacks free outfit unlock - Light and dark elements follow the same rules, although they have only advantages and disadvantages with each other. Heroes with corrupt elements deal 1.5 times damage to all other elements, but will also receive the same damage from other elements. DJ elemental units deal a normal amount of damage to all other elements, and each element takes only 0.9 times the damage. Finally, units belonging to shadow elements deal 1.1 times the damage to all elements and receive the same amount or percentage of damage. Considering the above scheme, any combination or mixture of elements can actually give you a good opportunity to make considerable progress in the game content. In any case, you want to avoid a team being disadvantaged by a single factor. Although the DJ element seems to have more advantages than other elements, in some cases, the advantage element can help you complete some challenging battles, especially when the enemy falls into one of the top five elements Gacha Club free oc codes 2022!
+
+<a href="https://www.myget.org/feed/gacha-club-hacks/package/nuget/Gacha.Club.promo.codes.2022">Visit now</a>
